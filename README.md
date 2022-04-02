@@ -17,7 +17,7 @@ https://drive.google.com/file/d/1trgWHHFfZ1BfPbBCQKJUwGSwVfZdI1ZH/view?usp=shari
 
 
 ## AMA
-This is a logo that I made for Cheick Oumar, my agripreneur friend.
+This is a logo I made for Cheick Oumar, my agripreneur friend.
 He is still using it for his eponym enterprise.
 
 https://drive.google.com/file/d/1KKwi2NpcbAUAbps8eLTeGODqUKF-PE0x/view?usp=sharing
